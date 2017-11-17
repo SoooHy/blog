@@ -10,4 +10,4 @@
                                                               -- 王国维的《人间词话》
 
 
-## [那些值得一看的好文章](https://github.com/SoooHy/blog/issues/1)
+## [那些值得一看的好文章呢~](https://github.com/SoooHy/blog/issues/1)
