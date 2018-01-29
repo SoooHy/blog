@@ -1,5 +1,5 @@
 # :books:读书与学习
-  :neckbeard: 客官，先共饮了这碗毒鸡汤吧~hhhhh
+  :neckbeard: 不要鸡汤要鸡血~hhhhh
   
 ## 古今之成大事业、大学问者，必经过三种之境界
 
